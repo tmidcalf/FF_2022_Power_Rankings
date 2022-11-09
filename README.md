@@ -1,0 +1,1 @@
+# FF_2022_Power_Rankings
